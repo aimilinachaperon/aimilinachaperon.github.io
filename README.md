@@ -8,7 +8,7 @@
   > Please note that this is an open graduation, you don't need tickets in order to attend!
 - Can't attend? It'll be live streamed on YouTube, so you can watch along--and even record the broadcast--of me walking the stage! Please check back here in December, I should have the correct link for the video by then
 
-### Helpful Links and Online Information
+## Helpful Links and Online Information
 - The Alamodome
   - [Click here for parking information](https://www.alamodome.com/plan-your-visit/parking-tailgating)
   - [Click here for directions](https://www.alamodome.com/plan-your-visit/directions)
@@ -17,10 +17,15 @@
   - Another helpful website that is not related to the Alamodome is [this one regarding San Antonio.](https://www.visitsanantonio.com) You'll find information on hotel options, things to do during your stay, and more
   - [Click here to view San Antonio's hotel options](https://www.visitsanantonio.com/places-to-stay/)
 
-### Hotel Options
+## Hotel Options
 *Listed based on proximity to the Alamodome.*
 - Weow.
 
-### Wannna Contact Aimilina? Get in Touch?
+## Wannna Contact Aimilina? Get in Touch?
 - [Click here to add me on Facebook and message me!](https://www.facebook.com/aimilina.chaperon/)
 - Don't have Facebook? I gotta figure that out!
+
+## Fun and Additional Info About My University
+- I graduated from The University of Texas at San Antonio
+- Our school colors are white, orange, and blue
+- Our mascot is the roadrunner and is named Rowdy
