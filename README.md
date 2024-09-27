@@ -5,7 +5,7 @@
 - Date and time of commencement ceremony: Saturday, December 14, 2024 at 10:00 AM
 - Where: The Alamodome ~ 100 Montana St San Antonio, TX 78203, United States
   - [Click here to view the website for the Alamodome's page](https://www.alamodome.com/plan-your-visit/visitor-information) that has helpful information for things to know before attending. This includes their clear bag policy, directions and maps, parking options, nearby hotels, etc.
-  > Please note that this is an open graduation, you don't need tickets in order to attend! Seating is open so show up nice and early to snag the exact spot that you want
+> Please note that this is an open graduation, you don't need tickets in order to attend! Seating is open so show up nice and early to snag the exact spot that you want
 - Doors open approximately 2 hours before the ceremony, at 8:00 AM, and the ceremony will be about 2-2.5 hours long
   - Please note that re-entry to the Alamodome is not allowed, so don't leave unless you're ready to go for the day
 - Can't attend? It'll be live streamed on YouTube, so you can watch along--and even record the broadcast--of me walking the stage! Please check back here in December, I should have the correct link for the video by then
