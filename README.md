@@ -1,6 +1,6 @@
 # Aimilina is Graduating College!
 
-## Join us in celebrating Aimilina's graduation from the University of Texas at San Antonio!
+## Join us in celebrating Lina's graduation from the University of Texas at San Antonio!
 
 - Date and time of commencement ceremony: Saturday, December 14, 2024 at 10:00 AM
 - Where: The Alamodome ~ 100 Montana St San Antonio, TX 78203, United States
