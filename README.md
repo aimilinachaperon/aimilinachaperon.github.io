@@ -27,5 +27,7 @@
 
 ## Fun and Additional Info About My University
 - I graduated from The University of Texas at San Antonio
+  - I earned my Bachelor of Science in Computer Science
+  - I graduated from the College of Sciences
 - Our school colors are white, orange, and blue
 - Our mascot is the roadrunner and is named Rowdy
