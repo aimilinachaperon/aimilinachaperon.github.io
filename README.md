@@ -23,13 +23,8 @@
   - [This website](https://www.utsa.edu/commencement/guests/) has some information for guests, such as the ability to buy flowers and t-shirts at the Alamodome. You can place advance orders of these kinds of items, too
     - I already provided all the most helpful info from this page, but you're welcome to browse :)
 
-## Hotel Options
-*Listed based on proximity to the Alamodome.*
-- Weow.
-
 ## Wannna Contact Aimilina? Get in Touch?
 - [Click here to add me on Facebook and message me!](https://www.facebook.com/aimilina.chaperon/)
-- Don't have Facebook? I gotta figure that out!
 
 ## Fun and Additional Info About My University
 - I graduated from The University of Texas at San Antonio
